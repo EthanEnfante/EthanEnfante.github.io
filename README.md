@@ -1,17 +1,22 @@
 # ETHAN ENFANTE
-Manteca, California | (209) 482-0130 | em.enfante@gmail.com | www.linkedin.com/in/ethan-enfante
+Manteca, California | (209) 482-0130 | em.enfante@gmail.com | [Linkedin](www.linkedin.com/in/ethan-enfante)
 # EDUCATION
 ## Modesto Junior College
 **Modesto, CA**
+
 AS in Computer Science | December 2024
+
 Awards: President's List (fall semester 2022)
  
 ## Sierra High School
 **Manteca, CA**
+
 High School Diploma | 2019
 # CERTIFICATIONS
 ## TestOut Linux Pro
-**Issued November 2022** Credential ID 6-2C6-S74CM
+**Issued November 2022** 
+
+Credential ID 6-2C6-S74CM
 # WORK EXPERIENCE
 ## Kohls
 **Sales Associate, Manteca, CA | November 2021 - July 2022**
