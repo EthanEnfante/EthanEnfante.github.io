@@ -4,7 +4,7 @@ Manteca, California | (209) 482-0130 | em.enfante@gmail.com | [Linkedin](www.lin
 ## Modesto Junior College
 **Modesto, CA**
 
-AS in Computer Science | December 2024
+AS in Computer Science, December 2024
 
 Awards: President's List (fall semester 2022)
  
