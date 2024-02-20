@@ -1,5 +1,5 @@
 # ETHAN ENFANTE
-Manteca, California | (209) 482-0130 | em.enfante@gmail.com | [Linkedin](www.linkedin.com/in/ethan-enfante)
+Manteca, California | (209) 482-0130 | em.enfante@gmail.com | www.linkedin.com/in/ethan-enfante
 # EDUCATION
 ## Modesto Junior College
 **Modesto, CA**
